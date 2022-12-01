@@ -1,5 +1,6 @@
 - 👋 Hi, I’m @ThomasECE1
-- 👀 I’m interested in te
+- 👀 I’m interested in te tennis
+- 
 - 🌱 I’m currently learning that
 - 💞️ I’m looking to collaborate on oj
 - 📫 How to reach me fghj
